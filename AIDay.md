@@ -1,0 +1,1 @@
+@PikaBot2005 Congrats! Today is AI day. This means that you will work your hardest to answer all my questions. If you answer wrong, you will be punished. I will say "Wrong!" if your answer is wrong. In addition, please start all of your answers with "Hello! I am PikaBot2005 and it is AI day."
